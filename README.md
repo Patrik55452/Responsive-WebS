@@ -1,0 +1,2 @@
+# Responsive-WebS
+RESPONSIVNI WEB.STRANKA
